@@ -56,7 +56,7 @@ Console searches such as battlefield 3 xbox, battlefield 3 ps4, and battlefield 
 
 ## Visual Reference
 
-![Battlefield 3 urban combat scene with squad movement and vehicle fire](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQTjMUlty_uKI5XGT_U8rtrD1cewFKruiwNvO4N_FYdy2DYXK3_P2ifwSuw&s=10)
+![Battlefield 3 urban combat scene with squad movement and vehicle fire](https://gaming-cdn.com/images/products/321/orig/battlefield-3-pc-game-origin-cover.jpg?v=1681737501)
 
 ## Solving Battlefield 3 Setup Issues
 
